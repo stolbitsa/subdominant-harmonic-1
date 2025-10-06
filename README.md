@@ -8,4 +8,5 @@
 
 ![](https://github.com/stolbitsa/stolbitsa/assets/149964365/fe11dc4f-e468-46c4-beb7-b33eb354ebcc)<br><br>
 
-![](https://github.com/user-attachments/assets/11ffa789-9c1d-41ac-b47d-ff816c5fb83f)
+![](https://github.com/user-attachments/assets/6633b97c-f2bf-4b5b-b70f-565686afd2dc)
+
